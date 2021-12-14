@@ -7,7 +7,7 @@
 ### Email : aronl9810@hstat.org
 
 ## Section 2 : What I legit do in my life.
-I used a totally legal coding program called python and have to spend hours debugging. 
+I used a totally legal coding program called python and have to spend hours debugging. Look at that python file if you are.
 
 I also draw although rarely post content that actually exist
 
