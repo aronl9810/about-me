@@ -13,9 +13,19 @@ I also draw although rarely post content that actually exist
 
 I play video games and please do not come near me in tetris otherwise I do a thing called 2 wides and you instantly die.
 
-## Section 3 : Ellis Quote
+## Section 3 : Schedule.
+1. Gym
+2. Global History
+3. Chemistry
+4. Algebrea
+5. English
+6. SEP
+7. Spanish
+8. Lunch
 
-My buddy Keith tried camping out on top of a building once. He was shooting crows, but the police were too busy teargassin' him to ask what he was doin' up there. He screamed for an entire year every single time he opened his eyes! Oh, man! At first, it was funny; then it just got sad, but then it got funny again! Oh, man!
+## Section 4 : Ellis Quote
 
-Man what the hell am I doing. 
+- My buddy **Keith** tried camping out on top of a building once. He was shooting crows, but the police were too busy teargassin' him to ask what he was doin' up there. He screamed for an entire year every single time he opened his eyes! Oh, man! At first, it was funny; then it just got sad, but then it got funny again! Oh, man!
+
+- Man what the hell am I doing. 
 
