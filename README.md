@@ -22,6 +22,12 @@ I play video games and please do not come near me in tetris otherwise I do a thi
 6. SEP
 7. Spanish
 8. Lunch
+f
+f
+f
+f
+ff
+f
 
 ## Section 4 : Ellis Quote
 
