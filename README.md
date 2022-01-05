@@ -11,7 +11,7 @@ I used a totally legal coding program called python and have to spend hours debu
 
 I also draw although rarely post content that actually exist
 
-I play video games and please do not come near me in tetris otherwise I do a thing called 2 wides and you instantly die.
+I play video games and please do not come near me in tetris otherwise I do a thing called 2 wides and you instantly evaporate
 
 ## Section 3 : Schedule.
 1. Gym
